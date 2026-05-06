@@ -1,4 +1,5 @@
-<img alt="MeoMeo (transparent bg)" src="https://github.com/user-attachments/assets/13514fe5-9737-40b6-9fa3-55e130de2388" />
+<img alt="MeoMeo (pink bg)" src="https://github.com/user-attachments/assets/0a2f1b34-50c7-4fe9-b007-9382ae7a0d5c" />
+
 
 <h6>Thanks my <a href="https://www.facebook.com/profile.php?id=61558868483460">friend</a> for this artwork <3</h6>
 
